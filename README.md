@@ -1,1 +1,1 @@
-# Uzbek-Diaspora Hey, This is for GitHub, I have not yet connected it to Domain.
+# Hey visitor, This is for GitHub, I have not yet connected it to Domain.
